@@ -2,7 +2,17 @@
 
 ## Author - Dale Carnegie
 
-Takeaways and interesting quotes from Part 1, Chapter 1: Bury Your Boomerangs
+### Contents
+
++ Part 1: Essentials of Engagement
+    1. Bury Your Boomerangs
+    2. Affirm What's Good
+    3. Connect with Core Desires
++ Part 2: Six Ways to Make a Lasting Impression
++ Part 3: How to Merit and Maintain Others' Trust
++ Part 4: How to Lead Change Without Resistance or Resentment
+
+### Part 1
 
 * Communicate to tear down somebody or build that person up
 * Do not condemn, criticize or complain
