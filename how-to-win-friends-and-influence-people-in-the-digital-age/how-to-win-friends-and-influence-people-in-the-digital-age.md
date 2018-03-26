@@ -49,4 +49,9 @@
 
 ### Chapter 3: Connect with Core Desires
 
-* 
+* To influence others to act, you must first connect to a core desire that lies within them. 
+* Two insights that we often overlook when trying to influence others:
+    * Influence requires more intuition than intellect. 
+        * Influence is no respecter of education or experience. It goes only with the one who will set aside this status - be it high and mighty or low and lowly - and put herself in the place of the other. 
+        * To do so, requires a shrewd and spontaneous ability to read beneath the surface of an interaction.
+        * Antoine de Saint-Exupery, "What is essential is invisible to the eye."
