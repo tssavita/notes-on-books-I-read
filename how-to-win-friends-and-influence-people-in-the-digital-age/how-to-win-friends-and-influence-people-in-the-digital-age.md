@@ -12,7 +12,9 @@
 + Part 3: How to Merit and Maintain Others' Trust
 + Part 4: How to Lead Change Without Resistance or Resentment
 
-### Part 1
+## Part 1
+
+### Chapter 1
 
 * Communicate to tear down somebody or build that person up
 * Do not condemn, criticize or complain
@@ -39,3 +41,12 @@
 
 * There is a Jewish proverb - In the way you judge, you will be judged. By your standard of measure, you will be measured.
 * The greatest of leaders are ones who held their tongues and swallowed their pride. 
+
+### Chapter 2
+
+* Gaining influence is about setting yourself apart and stepping to a higher plane in the mind of the other. If you act and react like everybody else, you will never be able to be unique.
+* We can be quite obsessed with the most superficial things. 
+
+### Chapter 3: Connect with Core Desires
+
+* 
