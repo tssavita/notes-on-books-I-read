@@ -75,3 +75,11 @@
 * Deepak Malhotra says, "Negotiations become more productive when we realize that the other person may have legitimate concerns."
 * Mahatma Gandhi says, "Friendship that insists upon an agreement on all matters is not worth the name. Friendship to be real must ever sustain the weight of honest differences, however sharp they be."
 * Disagreement is a small crack in the wall that can be easily negotiated if we come to the discussion table with an open mind. 
+
+### Chapter 4: Begin in a Friendly Way
+
+* Successful leaders are always initiators. 
+* We are more inclined to agree with another person if we are friendly with him. If we feel that the other person seems uninterested, we tend to mirror the sentiment. 
+* When initiating the interaction, a gentle and affable tone is the most effective. 
+* A friendly greeting says - "You are worth my time. You are valuable."
+* "Trust is a social good to be protected just like air and water"
