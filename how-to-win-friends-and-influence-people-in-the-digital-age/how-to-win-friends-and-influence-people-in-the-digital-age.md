@@ -59,7 +59,7 @@
 
 ## Part 3
 
-### Avoid Arguments
+### Chapter 1: Avoid Arguments
 
 * Avoid arguments and win grace and goodwill.
 * Arguing with another person will not reach anywhere except for each person getting more firmly convinced of their own opinion.
@@ -67,3 +67,11 @@
 * The Brazilian president Lula's mother said, two people can't fight if one person doesn't want to.
     * He considered himself a negotiator. 
 * Corporate behavioral specialist Esther Jeles says, inside us all is "a vault of better self-understanding, higher knowledge and greater ideas. Tension and conflict occur when you and/or those with you discard the notion that others also have inner wisdom that ought to be heard."
+
+### Chapter 2: Never Say, "You're  Wrong"
+
+* The best solution, wisest decision, and brightest idea nearly always exists outside of what one party brings to the table. Yet we find it quite easy to declare the other person wrong without taking the time to understand what the other person is saying. 
+* Harvard Business School professor and coauthor of Negotiation Genius, Deepak Malhotra says, "Those who forget the past are condemned to repeat it. Those who learn the wrong lessons from the past my be equally doomed."
+* Deepak Malhotra says, "Negotiations become more productive when we realize that the other person may have legitimate concerns."
+* Mahatma Gandhi says, "Friendship that insists upon an agreement on all matters is not worth the name. Friendship to be real must ever sustain the weight of honest differences, however sharp they be."
+* Disagreement is a small crack in the wall that can be easily negotiated if we come to the discussion table with an open mind. 
