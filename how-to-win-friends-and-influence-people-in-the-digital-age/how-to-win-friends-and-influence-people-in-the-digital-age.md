@@ -10,6 +10,7 @@
     3. Connect with Core Desires
 + Part 2: Six Ways to Make a Lasting Impression
 + Part 3: How to Merit and Maintain Others' Trust
+    1. Avoid Arguments
 + Part 4: How to Lead Change Without Resistance or Resentment
 
 ## Part 1
@@ -55,3 +56,14 @@
         * Influence is no respecter of education or experience. It goes only with the one who will set aside this status - be it high and mighty or low and lowly - and put herself in the place of the other. 
         * To do so, requires a shrewd and spontaneous ability to read beneath the surface of an interaction.
         * Antoine de Saint-Exupery, "What is essential is invisible to the eye."
+
+## Part 3
+
+### Avoid Arguments
+
+* Avoid arguments and win grace and goodwill.
+* Arguing with another person will not reach anywhere except for each person getting more firmly convinced of their own opinion.
+* We will face conflict every day. The only way to prevent a tactful discussion from becoming an aggressive argument is to value interdependence than independence. 
+* The Brazilian president Lula's mother said, two people can't fight if one person doesn't want to.
+    * He considered himself a negotiator. 
+* Corporate behavioral specialist Esther Jeles says, inside us all is "a vault of better self-understanding, higher knowledge and greater ideas. Tension and conflict occur when you and/or those with you discard the notion that others also have inner wisdom that ought to be heard."
