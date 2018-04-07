@@ -75,6 +75,17 @@
 * Deepak Malhotra says, "Negotiations become more productive when we realize that the other person may have legitimate concerns."
 * Mahatma Gandhi says, "Friendship that insists upon an agreement on all matters is not worth the name. Friendship to be real must ever sustain the weight of honest differences, however sharp they be."
 * Disagreement is a small crack in the wall that can be easily negotiated if we come to the discussion table with an open mind. 
+* Corporate Behavioral specialist Esther Jeles mentioned something along the lines of:
+    * We only bring to the table, what we know. 
+    * We like to show off what we know and our skills.
+    * We are expected to know something.
+    * Sometimes this expectation works against us, because we close off possibilities that exist outside what we know. 
+    * We then rebuke what others say and even the right of others to bring their own assessment to the table. 
+* All problem solving begins with emptying of the mind.
+* Acknowledging the possibility that we may not be the only person right, goes a long way in creating meaningful collaboration. 
+* More often, we value personal victory over collaborative possibility.
+* There is no point in denting a relationship by denting a person's ego. If you remember the times when you thought others were wrong, you can be fairly certain that others will also remember you in the same negative light. 
+* "Default to diplomacy" and show the other some respect. Admit that you might be wrong, and that the other person may be right. 
 
 ### Chapter 4: Begin in a Friendly Way
 
