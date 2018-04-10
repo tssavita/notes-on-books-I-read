@@ -24,3 +24,17 @@
 
 ## Chapter 2: Acknowledge Your Baggage
 
+* Admitting one's mistakes even when one has not corrected them, can help in convincing others to change their behaviour.
+* Admitting that you have made a mistake is one of the primary steps in career advancement. 
+* We should have a fair amount of detachment from the problem to be able to identify our mistakes. 
+* Admitting to mistakes builds a trust with our colleagues. 
+* A sample way of saying that somebody else did a mistake:
+    * You have a done a mistake <>. Although I must admit that at your age, I was even worse! I do not have the full right to criticise you, but don't you think the system would have had better performance if you had done so and so? 
+* When you acknowledge your baggage, trust builds naturally. 
+
+## Chapter 3: Call Out Mistakes Quietly
+
+* Some ways to influence behaviour: 
+    * Identify those in your community or family or team, that influence others the most, and observe them. 
+    * Peer pressure plays a good role in influencing the thoughts and actions of others. 
+    * Make changes to the environment itself, to make the subtle mind-set change that you bring in, easily adaptable. 
