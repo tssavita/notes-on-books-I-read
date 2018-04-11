@@ -38,3 +38,11 @@
     * Identify those in your community or family or team, that influence others the most, and observe them. 
     * Peer pressure plays a good role in influencing the thoughts and actions of others. 
     * Make changes to the environment itself, to make the subtle mind-set change that you bring in, easily adaptable. 
+* Sometimes the best way to correct behaviour is use the situation to build up self-confidence and deeper connection.
+* Sometimes a mistakes a byproduct of our hearts not being fully engaged in the work we do, we are bothered about other events in our life. 
+
+## Chapter 4: Ask Questions Instead of Giving Direct Orders 
+
+* The team leader should know about the team. This will lead to a serious shift in morale willingness among the team members to push the limits of what is possible. 
+* Asking questions makes an order more palatable. People are more likely to follow a path if they feel they were involved in shaping it. 
+* Questions all you to create a conversation that is a better place for all involved. 
