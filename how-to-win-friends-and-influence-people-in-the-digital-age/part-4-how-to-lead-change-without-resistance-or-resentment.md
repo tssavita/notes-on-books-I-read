@@ -49,6 +49,13 @@
 
 ## Question 5: Mitigate Fault
 
+* Give important points to instill organizational resilience in teams:
+    * Acknowledge that failure happens
+    * Encourage dialogue to foster trust
+    * Separate the person from the failure
+    * Learn from the mistake
+    * Create a risk-taking and failure system
+
 ## Question 7: Give Others a Fine Reputation to Live Up To
 
 * Story of a professor Benjamin Zander - 
