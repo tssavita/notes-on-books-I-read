@@ -46,3 +46,15 @@
 * The team leader should know about the team. This will lead to a serious shift in morale willingness among the team members to push the limits of what is possible. 
 * Asking questions makes an order more palatable. People are more likely to follow a path if they feel they were involved in shaping it. 
 * Questions all you to create a conversation that is a better place for all involved. 
+
+## Question 5: Mitigate Fault
+
+## Question 7: Give Others a Fine Reputation to Live Up To
+
+* Story of a professor Benjamin Zander - 
+    * Gave students an A on the first day of class, and, 
+    * Asked them to write and submit in the coming days, 
+    * How each of their journey in the course will look like, towards the end of the course, for the grade to be justified. 
+    * Each of them was supposed to discuss the highlights, milestones, etc.
+* To change somebody's behaviour, change the level of respect she receives by giving her a fine reputation to live up to. 
+* Act as though the trait you are trying to influence already exists in the person. 
