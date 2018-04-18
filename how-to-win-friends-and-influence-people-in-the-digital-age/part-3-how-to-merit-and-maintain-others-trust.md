@@ -28,6 +28,11 @@
 * There is no point in denting a relationship by denting a person's ego. If you remember the times when you thought others were wrong, you can be fairly certain that others will also remember you in the same negative light. 
 * "Default to diplomacy" and show the other some respect. Admit that you might be wrong, and that the other person may be right. 
 
+## Chapter 3: Admit Faults Quickly and Emphatically
+
+* There is a certain satisfaction in having the courage to admit one's faults. It clears the air of guilt and defensiveness.
+* When we recognize and admit our mistakes quickly, the forgiveness in the eyes of others rises quickly. Only when we shirk off the responsibility do we iritate others. 
+
 ## Chapter 4: Begin in a Friendly Way
 
 * Successful leaders are always initiators. 
@@ -35,3 +40,16 @@
 * When initiating the interaction, a gentle and affable tone is the most effective. 
 * A friendly greeting says - "You are worth my time. You are valuable."
 * "Trust is a social good to be protected just like air and water"
+
+## Chapter 5: Access Affinity
+
+* When a person says no, there is a certain chain of psychological reactions that take place within us that makes us more defensive and ready to withdraw.
+* The more yeses we get from an interaction, the more likely we are to agree with the other person. 
+* When we start with a yes, we are creating affinity. But, to turn affinity to influence, there must be a foundation of empathy. 
+* We must constantly be able to interact with another person, taking into account, her point of view. 
+* You have to offer what _they_ want in order for them to begin with a yes, and maintain the yes. 
+* Today there are agreements:
+    * The first kind of agreement is one that comes out of two parties holding the same value.
+    * The second kind of agreement is two people taking a liking to the same thing. 
+* The more early yeses we get, the more likely we are to succeed in the future. 
+* _Access affinity as early as possible_
