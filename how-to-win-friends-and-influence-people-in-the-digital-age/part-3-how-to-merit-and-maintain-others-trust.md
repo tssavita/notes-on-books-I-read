@@ -53,3 +53,18 @@
     * The second kind of agreement is two people taking a liking to the same thing. 
 * The more early yeses we get, the more likely we are to succeed in the future. 
 * _Access affinity as early as possible_
+
+### Surrender Credit
+
+* The worst quality in a leader is taking credit when things go well and blaming others when they don't.
+* While it's easy to see that we want credit for successes, for which we labored, claiming it forcefully will send people scurrying in the other direction. 
+* The principle suggested here is not that of martyr syndrome, where you want to surrender spotlight and claim the spotlight subtly. Instead, it is that you know that your a far better person than the people around you. 
+* Surrendering the credit is a way of life in which you like to put the other person in front you as a way of showing your gratefulness for the value they bring in your life. 
+* Inherent in this principle of surrendering the credit to someone else is reciprocity. 
+* In the long run, no one remembers things like whose idea it was, except for the originator. People only remember how magnanimous you were. 
+* The more you surrender your credit, the more people will remember you and you will end up getting credit. 
+
+### Engage with Empathy
+
+* In an age bent on self-promotion, we seldom take the time to consider how someone else might feel in any given situation.
+* Today there is little excuse for misunderstanding or overlooking another person's perspective. If a person is important to you in some way, every second spent understanding her perspective, is a second well spent. 
